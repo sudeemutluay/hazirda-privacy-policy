@@ -1,0 +1,1 @@
+# hazirda-privacy-policy
